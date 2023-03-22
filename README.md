@@ -1,3 +1,3 @@
 # HesapMakinesi Video
 
-https://drive.google.com/file/d/1wZyLI3F1ceFxo9o5oc9sPOsB052gQzfI/view?usp=share_link
+https://youtu.be/iq6A2rgeV3Y
